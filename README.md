@@ -9,4 +9,3 @@ Agora eu quero falar mais sobre mim, e o que eu quero falar é que eu tinha esqu
 
 As minhas experimentações
 
-huahauhauahuhauhauahuahauahuaha
